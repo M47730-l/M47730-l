@@ -1,1 +1,2 @@
-14yo Python developer.
+14yo.
+🇮🇹
